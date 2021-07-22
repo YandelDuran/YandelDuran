@@ -8,3 +8,5 @@ HOLA AMIGOS-✌🐱‍👤
  
  Espero hacer amigos,amigas y que todos nos levemos bien ( •̀ ω •́ )✧
 
+Algunos de mis gustos son: Jugar Genshin Impact,jugar basketball y andar en bici
+tambien disfruto ver anime (●'◡'●)
